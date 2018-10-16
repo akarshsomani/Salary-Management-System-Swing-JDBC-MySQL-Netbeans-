@@ -10,7 +10,7 @@ Some snaps are as follows-
 ![capture5](https://user-images.githubusercontent.com/34620833/47028003-1a305c80-d186-11e8-9b9a-12820850435d.PNG)
 ![capture6](https://user-images.githubusercontent.com/34620833/47028012-1e5c7a00-d186-11e8-9b1b-6f25527f69ee.PNG)
 ![capture7](https://user-images.githubusercontent.com/34620833/47028021-21576a80-d186-11e8-9c2e-7b50b1a9aa6b.PNG)
+![capture8](https://user-images.githubusercontent.com/34620833/47028319-ca9e6080-d186-11e8-8ca5-c925db987683.PNG)
 ![unnamed](https://user-images.githubusercontent.com/34620833/47028033-25838800-d186-11e8-8976-813c23a97c29.png)
 ![screen shot 2018-10-09 at 4 56 21 pm](https://user-images.githubusercontent.com/34620833/47028042-29170f00-d186-11e8-83e9-d33d53af9535.png)
-
 
